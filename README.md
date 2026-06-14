@@ -1,0 +1,1 @@
+# guidenova-assets
